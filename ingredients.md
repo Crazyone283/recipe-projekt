@@ -1,0 +1,1 @@
+cocoa powder, chocolate, flour, butter, suger, cocoa solids, caking powdervanilla extract
